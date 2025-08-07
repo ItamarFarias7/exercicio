@@ -1,0 +1,2 @@
+# exercicio
+Exercicio06.08.2025
