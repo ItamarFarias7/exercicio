@@ -1,2 +1,6 @@
 # exercicio
 Exercicio06.08.2025
+lalalalalalalalala
+lalalalalalalalala
+lalalalalalalalala
+hey
